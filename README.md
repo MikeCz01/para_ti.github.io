@@ -1,1 +1,1 @@
-# para_ti.github.io
+# declaracion
